@@ -1,0 +1,3 @@
+-kris
+-no pronouns. use they/howl if you're having a hard time with it
+-18
